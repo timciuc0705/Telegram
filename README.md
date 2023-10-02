@@ -1,2 +1,0 @@
-Jdj# Telegram
-Btcclickbot
